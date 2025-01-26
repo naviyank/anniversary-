@@ -1,3 +1,3 @@
 # anniversary-
 
-This for my partner, who I love very much.
+This is for my partner, who I love very much.
